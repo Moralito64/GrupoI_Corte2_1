@@ -1,1 +1,0 @@
-# GrupoI_Corte2_1
